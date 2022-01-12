@@ -259,7 +259,9 @@ CS程序员硕士，回内蒙古工作的点滴。
 国开行竞争特别激烈
 ![image](https://user-images.githubusercontent.com/44385522/147451747-e41958b9-5372-46bc-bdbc-6612f5eb0fbd.png)
 
-## 
+## 中国农业银行数据中心
+信息科技岗在北京上海呼和浩特都有分部。[2022链接](https://mp.weixin.qq.com/s/GPgpph2e8S3cPWt-xJEcCA
+)
 
 ## 中央银行内蒙古分行
 
