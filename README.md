@@ -301,6 +301,12 @@ CS程序员硕士，回内蒙古工作的点滴。
 这个学院招聘看运气，有时候会大幅度招聘
 [招聘思想政治老师](https://mp.weixin.qq.com/s/S4ZJEVt6uLt-rX3_ZRXNhA)
 [2019年招了很多人](https://mp.weixin.qq.com/s/ajo2097-79JDGxJfHltyMQ)
+![13f71d6432b9895c1196cb1c2a371c3](https://user-images.githubusercontent.com/44385522/168418701-3b086efc-529d-45a3-9f89-eb133f962817.jpg)
+
+
+[](鄂尔多斯市人力资源公共服务中心张永恒，电话:13284841133)
+
+
 
 面试题型：
 观点态度
